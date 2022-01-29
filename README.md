@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Dubscr
+- 👀 I’m interested in game dev
+- 🌱 I’m currently learning pyschology
+- 💞️ I’m looking to collaborate on games
+- 📫 How to reach me Discord: Dubscr#0084
